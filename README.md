@@ -10,7 +10,7 @@ Instruções para o grupo:
 ### Pergunta 1: O Apocalipse no Campus
 *Se um apocalipse zumbi começasse agora na PUC Minas, qual seria a estratégia do grupo para sobreviver e qual prédio/local do campus vocês usariam como base?*
 Sua resposta aqui:
-Eu me vingia de morto ai o zumbi não me pegava
+ia ser só bala na cabeça peteco peteco peteco
 ---
 
 ### Pergunta 2: O Decreto Real
